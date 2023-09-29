@@ -1,2 +1,2 @@
 # Bryan-s-Repository
-Bryan and my email is bryan.gomez@wsu.edu
+I'm Bryan and my email is bryan.gomez@wsu.edu
